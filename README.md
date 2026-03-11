@@ -1,6 +1,6 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![art by fandomandangstlover on tumblr](https://64.media.tumblr.com/27da27fdc53b28919de9e7474b7490ac/91f50539ccd9d0eb-a0/s400x600/c22730e3e1798509759e920131457939befa5218.pnj) c.
-fandomandangstlover
-<h2>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ashle ! or sorin / anna marie . ex-owner of wrsc</h2>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![art by fandomandangstlover on tumblr](https://media.discordapp.net/attachments/1183536786933288973/1481106047845404832/Untitled1219_20260310214622.png?ex=69b21aff&is=69b0c97f&hm=5a4b35e30b90813a3cfe03efe9d8b6bb3625b130ca7af1f9802a3e1cdc37ec4a&=&format=webp&quality=lossless&width=1031&height=604) c.
+underscorecip
+<h2>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ anna marie or rogue . ex-owner of wrsc</h2>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀18+, rogue ( x - men '97 ) fictive. c+h is heavily encouraged.
 
