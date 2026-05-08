@@ -1,35 +1,29 @@
 ⠀
 ⠀
 <div align="center">
-<img src="https://camo.githubusercontent.com/cb739fa32c4d994786733f8478dfe9aef5c2bb8ab30d4e78609c0b12ce6c03e1/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313138333533363738363933333238383937332f313530323433303932393831313933353236332f696d6167652e706e673f65783d36396666616635372669733d363966653564643726686d3d31336166316631306231656334353835656562326166393032346561623662616232643765363766363766653837623363366138663236646633393563346139263d26666f726d61743d77656270267175616c6974793d6c6f73736c6573732677696474683d31383735266865696768743d353432" alt="Main gif" align="center">
+<img src="https://camo.githubusercontent.com/75bd40dbdfb18e07b768be1e05b9b9d8d5f49930621ba757d6f577996070f420/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313138333533363738363933333238383937332f313530323433323237333932323738353336312f4e65775f50726f6a6563745f33352e706e673f65783d36396666623039372669733d363966653566313726686d3d36663261376366623666623737613739653666363361613935323137653937356462666266623530393134613364633333653766333736616133303531636433263d26666f726d61743d77656270267175616c6974793d6c6f73736c6573732677696474683d32343731266865696768743d323533" alt="ic ambar-telumendil" align="center">
+
+⠀
+⠀
   
 <div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Josefin+Sans&pause=1500&color=922455&center=true&vCenter=true&width=435&lines=The+names+Gambit%2C+mon+ami.;Remember+it." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Amiri&duration=2500&pause=1000&color=C72828DB&center=true&vCenter=true&width=435&lines=In+the+name+of+Hades%2C;Olympus%2C+I+accept+this+message." alt="Typing SVG" /></a>
 
-
-</div>
+<br>
 
 <div align="center">
+<img src="https://komarev.com/ghpvc/?username=kineticfolds&color=66053F&style=for-the-badge&label=+escapes" />⠀
+
 
 <br>
   
-$\color{#9F0F41FF}{\textsf{remy or gambit. fictive.}}$<br>
-$\color{#9F0F41FF}{\textsf{he/him only, she/her fine if close.}}$<br>
-$\color{#9F0F41FF}{\textsf{i tend to be a dry texter. i dont use ttgs.}}$<br>
-$\color{#9F0F41FF}{\textsf{c+h encouraged. im friendly!}}$<br>
-$\color{#9F0F41FF}{\textsf{usually at docks or marvel.}}$<br>
-      </td>
-    </tr>
-  </table>
-  </div>
+$\color{#911111}{\textsf{nice}}$ $\color{#a34b45}{\textsf{work}}$ $\color{#bd7a51}{\textsf{you}}$ $\color{#e0a04c}{\textsf{did,}}$
+
+$\color{#911111}{\textsf{you're}}$ $\color{#a34b45}{\textsf{gonna}}$ $\color{#bd7a51}{\textsf{go}}$ $\color{#e0a04c}{\textsf{far,}}$ $\color{#ffd773}{\textsf{KID!}}$
+
+<img src="https://files.catbox.moe/43eem1.png" width="600" alt="color spectrum" title="c. whalefallenn">
+
+$\color{#911111}{\textsf{adult. he she.}}$
+
   
-$\color{#9F0F41FF}{\textsf{dni list.}}$<br>
-$\color{#9F0F41FF}{\textsf{under 15 do not interact.}}$<br>
-$\color{#9F0F41FF}{\textsf{basic dni.}}$<br>
-$\color{#9F0F41FF}{\textsf{i block freely.}}$<br>
-      </td>
-    </tr>
-  </table>
-  </div>
-<div align="center">
-<img src="https://komarev.com/ghpvc/?username=kineticfolds&color=66053F&style=for-the-badge&label=+DECKS" />⠀
+<img src="https://camo.githubusercontent.com/db9cc043bfa3f1c2f83a2e2eafebbc5345aec422102c19b1509877a9e2e3ffd1/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313138333533363738363933333238383937332f313530323433323232323333373137313438362f4e65775f50726f6a6563745f33332e706e673f65783d36396666623038622669733d363966653566306226686d3d65313432373662336537366230313866323635656130373031343830626237303932363062616233313937383333373833633932623837303030666430333135263d26666f726d61743d77656270267175616c6974793d6c6f73736c6573732677696474683d32343731266865696768743d323533" alt="bottom div" align="center">
