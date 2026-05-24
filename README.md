@@ -21,7 +21,7 @@ $\color{#2932a4}{\textsf{but}}$ $\color{#4556a3}{\textsf{i}}$ $\color{#5198bd}{\
 
 $\color{#2932a4}{\textsf{(please}}$ $\color{#4556a3}{\textsf{let}}$ $\color{#5198bd}{\textsf{me}}$ $\color{#4ce0cb}{\textsf{go.)}}$
 
-<img src="https://files.catbox.moe/jautig.png" width="600" alt="color spectrum" title="c. studio investigrave">
+<img src="https://files.catbox.moe/j0srvc.png" width="600" alt="color spectrum" title="c. studio investigrave">
 
 $\color{#5968b0}{\textsf{adult. he she.}}$
 
